@@ -1,1 +1,1 @@
-# Prote-nas-para-acoplamiento-molecular
+# Proteínas-para-acoplamiento-molecular
